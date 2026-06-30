@@ -3,7 +3,7 @@
 
 🌐 **Location:** Lagos, Nigeria (WAT / UTC+1)  
 ⚡ **Timezone Alignment:** Fully aligned with UK (GMT/BST) and Central European Time (CET). **Zero timezone friction.**  
-📧 **Contact:** [Your Email Address] | [Your LinkedIn Profile Link]
+📩 **Contact:** ogunlowomuideenabiodun@gmail.com | [LinkedIn](https://www.linkedin.com/in/muideen-ogunlowo-990437231)
 
 ---
 
